@@ -1,4 +1,4 @@
-# 
+# Get the ultimate isolated-margin trading bot with exclusive isolated-margin trading bot Tool | take-profit + low-frequency. Featuring take-profit and low-frequency, it's the best
 
 
 
